@@ -1,4 +1,4 @@
-
+Get the ultimate Windscribe app with secure App for Windscribe - WireGuard-support and DNS-leak-protection. Featuring WireGuard-support and DNS-leak-protection, it's the best
 
 
 
